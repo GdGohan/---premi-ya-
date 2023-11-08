@@ -43,10 +43,6 @@ https://github.com/GdGohan/Gensokyo-Meikitan---Premium-Premi-ya/assets/70231641/
 
 
 
-https://github.com/GdGohan/Gensokyo-Meikitan---Premium-Premi-ya/assets/70231641/74d48ec3-c5f7-4bd5-a76a-a2654b37043b
-
-
-
 https://github.com/GdGohan/Gensokyo-Meikitan---Premium-Premi-ya/assets/70231641/55136527-6dd5-437b-bc97-d14b3c956c22
 
 
