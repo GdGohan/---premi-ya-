@@ -11,4 +11,4 @@ Gensokyo Meikitan-幻想狂冥奇譚 (Doujin series, Premium Premiya-プレミ�
 https://github.com/GdGohan/Gensokyo-Meikitan---Premium-Premi-ya/assets/70231641/2a8a7517-b13e-4b55-a12c-68b489ea5887
 
 
-[![Video](https://lh3.googleusercontent.com/u/2/drive-viewer/AK7aPaAoAWz2iGe7dZ_Soak7IIgi_fJXNUuDY0p0Hls5osgqwQGfJpr6oRtWRWHd2O_swiFfpaIOXQhQ_1DSbAyBYuVL3jQ0HQ=w1920-h1080-k-pd)](https://drive.google.com/file/d/1B5gmbglEULla80GbqVsq-uWUR6QiRVxB/preview)
+[![Video](https://lh3.googleusercontent.com/u/2/drive-viewer/AK7aPaAoAWz2iGe7dZ_Soak7IIgi_fJXNUuDY0p0Hls5osgqwQGfJpr6oRtWRWHd2O_swiFfpaIOXQhQ_1DSbAyBYuVL3jQ0HQ=w1920-h1080-k-pd)](https://drive.google.com/file/d/1CiFsQsDgRgRFPKCtFsQGY1_8oBwlqUXH/preview?usp=drivesdk)
