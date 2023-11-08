@@ -3,5 +3,4 @@
 ![Real-ESRGANv3-anime_1107_213340](https://github.com/GdGohan/---premi-ya-/assets/70231641/5f4a518c-4085-4660-8518-e862380af481)
 making it available to an audience that does not use QQmusic
 
-https://github.com/GdGohan/Gensokyo-Meikitan---Premium-Premi-ya/assets/70231641/fbc2c91a-a5e5-47f1-b45e-eaf3914f3dad
-
+Gensokyo Meikitan-幻想狂冥奇譚 (Doujin series, Premium Premiya-プレミアムプレミ屋, 2011) - August 13, 2011 Yu Premium Premiya's Comic Market 80, all-length Doujin series, for the general public.
