@@ -12,3 +12,9 @@ https://github.com/GdGohan/Gensokyo-Meikitan---Premium-Premi-ya/assets/70231641/
 
 
 [![Video](https://lh3.googleusercontent.com/u/2/drive-viewer/AK7aPaBg9CV2IauDQ6cTYSOgTznR-os2tpxDu1oK6y9A8AnZBUyWUWb38ogm4EQbWxMLGzvzMZ9NKh3yyQyqxRDB4tucWRAqRA=w1920-h1080-k-pd)](https://drive.google.com/file/d/1CiFsQsDgRgRFPKCtFsQGY1_8oBwlqUXH/preview?usp=drivesdk)
+
+
+<head>
+	 <embed src="https://drive.google.com/file/d/1CiFsQsDgRgRFPKCtFsQGY1_8oBwlqUXH/preview?usp=drivesdk"/>
+</head>
+
