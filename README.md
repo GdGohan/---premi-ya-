@@ -6,4 +6,8 @@ making it available to an audience that does not use QQmusic
 Gensokyo Meikitan-幻想狂冥奇譚 (Doujin series, Premium Premiya-プレミアムプレミ屋, 2011) - August 13, 2011 Yu Premium Premiya's Comic Market 80, all-length Doujin series, for the general public.
 ![PhotoToPixels_20231107_2220123603745063165905530](https://github.com/GdGohan/Gensokyo-Meikitan---Premium-Premi-ya/assets/70231641/34bc517c-fe1f-4ce1-9a37-0a0fd7fd5442)
 
+
+https://github.com/GdGohan/Gensokyo-Meikitan---Premium-Premi-ya/assets/70231641/2a8a7517-b13e-4b55-a12c-68b489ea5887
+
+
 [![Video](https://lh3.googleusercontent.com/u/2/drive-viewer/AK7aPaAoAWz2iGe7dZ_Soak7IIgi_fJXNUuDY0p0Hls5osgqwQGfJpr6oRtWRWHd2O_swiFfpaIOXQhQ_1DSbAyBYuVL3jQ0HQ=w1920-h1080-k-pd)](https://drive.google.com/file/d/1B5gmbglEULla80GbqVsq-uWUR6QiRVxB/preview)
